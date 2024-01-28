@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Sabil318
-- 👀 I’m interested in video game and book
+- 👀 I’m interested in the video game and the book
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on SONY
+- 💞️ I’m looking to collaborate on great so
 - 📫 How to reach me 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
