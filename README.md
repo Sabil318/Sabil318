@@ -2,7 +2,7 @@
 - 👀 I’m interested in the video game and the book
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on great so
-- 📫 How to reach me 
+- 📫 How to reach me ( phone : 06 63 05 03 10 )
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
